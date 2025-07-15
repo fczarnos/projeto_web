@@ -1,1 +1,1 @@
-# projeto_web
+A Flow Metrics é sua parceira em marketing digital, transformando visitantes em clientes leais. Com foco em dados e estratégias personalizadas, impulsionamos seu alcance e vendas através de SEO, gestão de redes sociais e tráfego pago. Nossa abordagem transparente garante que você sempre veja o retorno do seu investimento.
